@@ -49,4 +49,4 @@ To comply with this license, please attribute the work as follows:
 ---
 
 # Additional Notes
-*This song was specifically made to be used in games of a friend of mine, i called this song Phosphor Blitz cause i created it prety fast..*
+*This song was specifically made to be used in games of a friend of mine, i called this song Phosphor Blitz cause i created it pretty fast..*
